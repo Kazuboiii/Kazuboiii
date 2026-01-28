@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on projects where i can learn new things
 - 📫 How to reach me @kazuboiiiiiiiiii
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: i love SZA!!!
+- ⚡ Fun fact: I am lazy!!!
+  
 
 <!---
 Kazuboiii/Kazuboiii is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
